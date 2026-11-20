@@ -7,7 +7,7 @@
 * Olive Oil defininatly EVO 
 * Chipotle sauce *Trust me its good*
 
-##Steps 
+## Steps 
 * Add to a blender the chickpeas, reserving the liquid, to that blender add in the Tahini, salt, lemon juice, and olive oil.
 * Add in sufficent of the reserved liquid such that you can blend it 
 * Blend well
